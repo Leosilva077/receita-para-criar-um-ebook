@@ -47,7 +47,7 @@ Leandro da Silva Lima
 
 - [GitHub](https://github.com/Leosilva077)
 - [LinkedIn](https://www.linkedin.com/in/leandro-da-silva-a0a8782b2/)
-- [Instagram](https://www.linkedin.com/in/leandro-da-silva-a0a8782b2/)
+- [Instagram](https://www.instagram.com/leandro_sl77/?next=%2F&hl=pt_BR)
 
 ⌨️ por Leandro da Silva Lima
 
